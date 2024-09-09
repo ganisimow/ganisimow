@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ganisimow
 - 👀 I’m interested in taking many good shots on target :)
-- 🌱 I’m currently learning behavioural sciences, and how to iterate super fast
+- 🌱 I’m currently learning behavioural sciences
 - 💞️ I’m looking to collaborate on anything cool
 - 📫 How to reach me @george150 on telegram
